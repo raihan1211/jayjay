@@ -1,0 +1,2 @@
+# jayjay
+tugas 
